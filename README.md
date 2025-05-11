@@ -1,1 +1,20 @@
 # Announcement-For-Logo-Editing-Wiki-Closures
+Closure To Logo Editing Wiki Fandom Users ⬇️
+
+--------------------------------------------------------------------------------
+Thank You For Posting New Effects.
+We regret to announce that service for Logo Editing Wiki will be closing soon. We would like to extend our sincerest apologies for the closure and gratitude to all users who have supported the service up until now.
+From 4pm, Nov 21, 2025 (GMT+9), the game will no longer be available to posting New Effetcs, and sales of paid-for items (hereinafter referred to as in-wiki on fandom currencies) will close permanently.
+━━━━━━━━━━━━━━━━━━━━━━━━━
+Schedule (all times and dates are GMT+9)
+━━━━━━━━━━━━━━━━━━━━━━━━━
+Termination of Posting New Effects: 4pm, Nov 21, 2025 
+Closure of sale of in-game currencies: 4pm, Nov 21, 2025 
+Fandom closure: 4pm, Nov 21, 2025 
+Start date for refund requesting new effects: 3pm, Dec 13, 2025
+Fandmom deadline for refund requests: 3pm, Jan 13, 2026
+Fandom Support closure: 4 pm, Feb 18, 2026
+━━━━━━━━━━━━━━━━━━━━━━━━━
+In-Fandom Currencies
+━━━━━━━━━━━━━━━━━━━━━━━━━
+In accordance with the Payment Services Act, Article 20, Paragraph 1, customers will be entitled to claim refunds for in-Fandom currencies remaining in their Users (hereinafter referred to as paid-for in-Fandom currency balance) at the time the Fandom closes.
